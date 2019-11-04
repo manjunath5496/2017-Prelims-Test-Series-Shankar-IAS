@@ -1,1 +1,4 @@
-# 2017-Prelims-Test-Series-Shankar-IAS
+<h2>2017 Prelims Test Series &minus; Shankar IAS </h2>
+
+<p>The <strong>Civil Services Examination</strong> (CSE) is a nationwide competitive examination in India conducted by the <strong>Union Public Service Commission</strong> for recruitment to various Civil Services of the Government of India, including the Indian Administrative Service (IAS), Indian Foreign Service (IFS), and Indian Police Service (IPS). This being one of the most competitive exams needs through preparation.&nbsp;<strong>2017 Prelims Test Series &minus; Shankar IAS</strong> help you to enhance and sharpen your preparation for UPSC and <strong>Civil Services</strong> exam. It is really an asset to those who plan to appear in various Competitive/Entrance Examinations and promotes exam awareness among aspirants and encourages them to rectify their weakness and build up their strength.</p>
+
